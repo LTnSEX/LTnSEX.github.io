@@ -1,2 +1,0 @@
-# LTnSEX.github.io
-kayZz
